@@ -4,4 +4,5 @@
 
 ## Experiencia
 
-Acougueiro - Tauste
+Açougueiro - Tauste Supermercados
+Tecnico em Administração - ETEC Antonio Devisate
